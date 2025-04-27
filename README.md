@@ -9,6 +9,9 @@
       
 [![Spotify recently played](https://spotify-recently-played-readme.vercel.app/api?user=s12uenf3xuez4eu5dy28pfg15&count=3)](https://open.spotify.com/user/s12uenf3xuez4eu5dy28pfg15)
 
+Things i fw (ints)
+⑅ Friends (⁠*⁠˘⁠︶⁠˘⁠*⁠) (please interact friends i love you all [/p] but im too shy to hang out with yall)
+
 <!--
 **the-world-needs-wannabes/the-world-needs-wannabes** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
