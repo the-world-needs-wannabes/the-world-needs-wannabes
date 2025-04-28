@@ -23,7 +23,7 @@
 <br/>
 ⑅ Animal Jam! update classic PLEASE
 <br/>
-⑅ ⁠☞ YOU!! social anxiety ie a BITCH so as long as you can keep the conversation going we will almost definetly become close (⁠´⁠-⁠﹏⁠-⁠`⁠；⁠)
+⑅ ⁠☞ YOU!! social anxiety is a BITCH so as long as you can keep the conversation going we will almost definetly become close (⁠´⁠-⁠﹏⁠-⁠`⁠；⁠)
 <br/>
 ⑅ SO many more but i forget so if you mention something around me ill probably know what youre talking about
 <br/>
