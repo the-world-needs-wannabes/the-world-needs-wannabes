@@ -25,10 +25,10 @@
 <br/>
 ⑅ ⁠☞ YOU!! social anxiety is a BITCH so as long as you can keep the conversation going we will almost definetly become close (⁠´⁠-⁠﹏⁠-⁠`⁠；⁠)
 <br/>
-⑅ SO many more but i forget so if you mention something around me ill probably know what youre talking about
+⑅ TV Girl! if im in my tv girl skin i have no problem matching with you!! *COUGH SOMEONE NEEDS TO REMAKE THEIR TV SKIN* (⁠☉⁠｡⁠☉⁠)⁠! woahh who said that
 <br/>
+⑅ SO many more but i forget so if you mention something around me ill probably know what youre talking about
 <div>
-my favorite car ever because i wanted to put this here
 
 </div>
 <!--
