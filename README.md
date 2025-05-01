@@ -29,6 +29,10 @@
 <br/>
 ⑅ TV Girl! if im in my tv girl skin i have no problem matching with you!! *COUGH SOMEONE NEEDS TO REMAKE THEIR TV SKIN* (⁠☉⁠｡⁠☉⁠)⁠! woahh who said that
 <br/>
+⑅ PEAKSTARS AGAHHAHDBBSKAIFJRJENNENWBA
+<br/>
+⑅ The Legend of Zelda! My favorite ganes are ss and botw (totk too but i prefer botw (⁠◍⁠•⁠ᴗ⁠•⁠◍⁠))
+<br/>
 ⑅ SO many more but i forget so if you mention something around me ill probably know what youre talking about
 <div>
 
