@@ -9,6 +9,8 @@
       
 [![Spotify recently played](https://spotify-recently-played-readme.vercel.app/api?user=s12uenf3xuez4eu5dy28pfg15&count=3)](https://open.spotify.com/user/s12uenf3xuez4eu5dy28pfg15)
 
+<div>im following anyone on my friends listd that has a gh because why not ¯⁠\⁠(⁠◉⁠‿⁠◉⁠)⁠/⁠¯</div>
+
 #### Things i fw (ints)
 <div align="left">
 ⑅ Friends (⁠*⁠˘⁠︶⁠˘⁠*⁠) (please interact friends i love you all [/p] but im too shy to hang out with yall)
