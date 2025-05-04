@@ -16,7 +16,7 @@
 <div align="left">
 ⑅ Friends (⁠*⁠˘⁠︶⁠˘⁠*⁠) (please interact friends i love you all [/p] but im too shy to hang out with yall)
 <br/>    
-⑅ Sonic!! Unless you ship Maria × anyone or Tails × anyone ewwwww 
+⑅ Sonic!! not in the area anymore cuz copiers ಠ⁠︵⁠ಠ but feel free to come up!
 <br/>
 ⑅ Red Dead Redemption! if you fw rdr i fw you <3
 <br/>
