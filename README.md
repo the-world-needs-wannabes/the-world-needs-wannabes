@@ -15,6 +15,8 @@
 <div>im following anyone on my friends list that has a gh because why not ¯⁠\⁠(⁠◉⁠‿⁠◉⁠)⁠/⁠¯</div>
 <div>idm if you dont follow back, i just wanna make big numbers bigger (⁠ ⁠╹⁠▽⁠╹⁠ ⁠)</div>
 
+<div>if im sleeping on pt im 100% afk</div>
+
 #### Things i fw (ints)
 <div align="left">
 ⑅ Friends (⁠*⁠˘⁠︶⁠˘⁠*⁠) (please interact friends i love you all [/p] but im too shy to hang out with yall)
