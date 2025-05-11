@@ -32,9 +32,20 @@ ponytown (obvs)
 fnaf
 <br>
 and uhhh probably lots of other shit lmaooo
-<div>
-
-</div>
+<div align="center">
+    
+#### places you might find me
+<div align="left">
+above docks (typically here with friends or afk)
+<br>
+fnaf area (we dying cr is taking over ahjdjrurjebjs)
+<br>
+sometimes sonic area? only ever there with friends now
+<br>
+sometimes in bakery. typically with friends
+<br>
+pretty much anywhere with people. i really enjoy people watching
+<br> in yo mf walls (⁠◠⁠‿⁠・⁠)
 <!--
 **the-world-needs-wannabes/the-world-needs-wannabes** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
