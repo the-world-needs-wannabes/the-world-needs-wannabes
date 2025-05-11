@@ -23,13 +23,15 @@ RDR1/2
 <br>
 Sonic (not in the area very much tho i only really am there to hang out with friends now)
 <br>
-    beastars
+beastars
 <br>
-    pretty much all music. tyler and tv girl especially
-    <br>
-    ponytown (obvs)
-    <br>
-    and uhhh probably lots of other shit lmaooo
+pretty much all music. tyler and tv girl especially
+<br>
+ponytown (obvs)
+<br>
+fnaf
+<br>
+and uhhh probably lots of other shit lmaooo
 <div>
 
 </div>
