@@ -46,6 +46,19 @@ sometimes in bakery. typically with friends
 <br>
 pretty much anywhere with people. i really enjoy people watching
 <br> in yo mf walls (⁠◠⁠‿⁠・⁠)
+<div align="center"
+    
+#### languages
+<div align="left">
+english mainly
+<br>
+deutsch (aber ser wenig)
+<br>
+español (ademas no mucho)
+<br>
+русский (тоже очень маленький)
+<br>
+
 <!--
 **the-world-needs-wannabes/the-world-needs-wannabes** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
