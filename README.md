@@ -45,7 +45,8 @@ sometimes sonic area? only ever there with friends now
 sometimes in bakery. typically with friends
 <br>
 pretty much anywhere with people. i really enjoy people watching
-<br> in yo mf walls (⁠◠⁠‿⁠・⁠)
+<br>
+in yo mf walls (⁠◠⁠‿⁠・⁠)
 <div align="center"
     
 #### languages
