@@ -31,6 +31,8 @@ ponytown (obvs)
 <br>
 fnaf
 <br>
+pokemon. wimpod, archeops, sivally, dragapult, totodile, and charizard my goats frfr 🙏
+<br>
 and uhhh probably lots of other shit lmaooo
 <div align="center">
     
