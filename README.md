@@ -47,7 +47,7 @@ sometimes in bakery. typically with friends
 pretty much anywhere with people. i really enjoy people watching
 <br>
 in yo mf walls (⁠◠⁠‿⁠・⁠)
-<div align="center"
+<div align="center">
     
 #### languages
 <div align="left">
