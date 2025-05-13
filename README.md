@@ -25,7 +25,7 @@ Sonic (not in the area very much tho i only really am there to hang out with fri
 <br>
 beastars
 <br>
-pretty much all music. tyler and tv girl especially
+pretty much all music. tyler, wifi, and tv girl especially
 <br>
 ponytown (obvs)
 <br>
