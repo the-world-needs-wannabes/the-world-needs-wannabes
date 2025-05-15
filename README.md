@@ -16,6 +16,7 @@
 <div>idm if you dont follow back, i just wanna make big numbers bigger (⁠ ⁠╹⁠▽⁠╹⁠ ⁠)</div>
 
 <div>if im sleeping on pt im 100% afk</div>
+i only tell my age to people im close with (cuz uh.. yall is strangers) but just know that if im on your age dni i wont interact with you
 
 #### Things i fw (ints)
 <div align="left">
