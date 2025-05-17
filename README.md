@@ -22,7 +22,7 @@ i only tell my age to people im close with (cuz uh.. yall is strangers) but just
 <div align="left">
 RDR1/2
 <br>
-Sonic (not in the area very much tho i only really am there to hang out with friends now)
+Sonic (not in the area very much tho i only really am there to hang out with friends now or when im super bored)
 <br>
 beastars
 <br>
