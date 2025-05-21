@@ -36,7 +36,17 @@ pokemon. wimpod, archeops, sivally, dragapult, totodile, and charizard my goats 
 <br>
 and uhhh probably lots of other shit lmaooo
 <div align="center">
-    
+
+#### ummm byi ig
+<div align="left">
+im like addicted to ponytown so yeahh
+<br>
+sometimes my meds make me a bit loopy and just kind of not there. feel free to int but i might not make a lot of sense 😔 (the secondary effects only last for a little while so feel free to come back later when im functioning better)
+<br>
+also my spelling can be absolute shit sometimes so if you need me to like decipher it i can
+<br>
+<div align="center">
+
 #### places you might find me
 <div align="left">
 above docks (typically here with friends or afk)
